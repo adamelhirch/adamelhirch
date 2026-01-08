@@ -18,4 +18,4 @@ Retrouvez plus de détails dans les dépôts épinglés sur mon profil.
   
 ## Me contacter  
   
-Si vous voulez discuter de data, de projets ou d'opportunités, n'hésitez pas à me contacter via LinkedIn ou par mail. 
+Si vous voulez discuter de data, de projets ou d'opportunités, n'hésitez pas à me contacter via LinkedIn https://www.linkedin.com/in/adam-el-hirch/ ou par mail adamelhirch05@gmail.com . 
